@@ -1,3 +1,4 @@
+![IMAGE](http://cjjfacademy.com/wp-content/uploads/2016/04/cjjf-ornament.png)
 
 # CJJFK a way of Life
 
