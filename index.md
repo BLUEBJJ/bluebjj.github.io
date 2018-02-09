@@ -4,14 +4,18 @@
 
 Caveiriniha Jiu Jitsu Family Kids is a place everyone can be comfortable calling home. 
 
+[Bio](
+
 ## We Promote:
 
 -A **BULLY FREE** Environment
 
 -Resilliance
 
--Pride in Ones self
+-Confidence
 
 -Self Determination
 
--Living a Healthy Life Style
+-Pride
+
+
