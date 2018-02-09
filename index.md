@@ -4,7 +4,7 @@
 
 Caveiriniha Jiu Jitsu Family Kids is a place everyone can be comfortable calling home. 
 
-[Bio](
+[Bio](https://github.com/BLUEBJJ/bluebjj.github.io/blob/master/Bio.md)
 
 ## We Promote:
 
