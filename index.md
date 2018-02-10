@@ -20,4 +20,4 @@ Caveiriniha Jiu Jitsu Family Kids is a place everyone can be comfortable calling
 
 -Pride
 
-![IMAGE](https://github.com/BLUEBJJ/bluebjj.github.io/blob/master/IMG_0039.JPG)
+![IMAGE](https://github.com/BLUEBJJ/bluebjj.github.io/blob/master/IMG_0113.JPG)
