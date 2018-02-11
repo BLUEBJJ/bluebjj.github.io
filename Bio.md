@@ -10,7 +10,9 @@ Currently living in beautiful Iwakuni, Japan
 
 My name is Hassan Veal and I am the head Coach of Caverinha Jiu Jitsu Family Kids located here in Iwakuni, Japan. I have been a practitioner of Martial Arts for many years and would love to coach your children. For many years now, my family and I have dedicated our lives to bringing the physical and spiritual attributes of Martial Arts to the lives of families and their children around the world.
 
-Through classes are geared for children of all ages, shapes and sizes, our school itself has become a community of learning and growth. 
+I personally have had the great honor to train and learn from some of the greatest Martial Artist and Practioners around the world to include: Professor Benjamin Moriniere of the Capoeira Academy Okinawa Japan, and Mestre Aldo Caveirinha of Caveirinha Jiu Jitsu Family Hawii, which have grown, produced and groomed Focused, knowledgable, and confident instructors/coaches over the Years. 
+
+In CJJFK classes are geared for children of all ages, shapes and sizes, our school itself has become a community of learning and growth. 
 
 My family and I would love nothing more than for you to become a part of it. That way you too can enrich your life, learn self-defense, and get in great shape too. 
 
