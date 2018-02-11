@@ -26,6 +26,8 @@ Caveiriniha Jiu Jitsu Family Kids is a place everyone can be comfortable calling
 
 ![IMAGE](bjj3.JPG )
 
-## For more info on Capoeira Academy please click link below:
+## For more info on Capoeira Academy or Caveirinha Jiu Jitsu Family please click link below:
 
 [Capoeira Academy](http://www.capoeira-okinawa.com/index.php)
+
+[Caveirinha Jiu Jitsu Family](http://cjjfacademy.com/)
