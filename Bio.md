@@ -4,7 +4,7 @@
 
 Currently living in beautiful Iwakuni, Japan
 
-![kikko park](Kikko park.jpg "Kikko Park")
+![kikko park](https://github.com/BLUEBJJ/bluebjj.github.io/blob/master/Kikko%20park.jpg)
 
 ## A Little About Me
 
