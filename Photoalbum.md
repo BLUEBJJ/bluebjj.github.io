@@ -1,6 +1,6 @@
 # Family Fun on and off the mat
 
-[Home](https://bluebjj.github.io/index.md)
+[Home](https://bluebjj.github.io/index)
 
 ![IMAGE](bjj4.JPG)
 
