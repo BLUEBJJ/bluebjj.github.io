@@ -28,4 +28,4 @@ It'll Be great to have you.
 Sincerly,
 Coach Hassan Veal
 
-[Home](https://github.com/BLUEBJJ/bluebjj.github.io/blob/master/index.md "Home")
+[Home](https://bluebjj.github.io/index "Home")
