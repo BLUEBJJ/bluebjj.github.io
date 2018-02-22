@@ -12,6 +12,6 @@ Self Defense
 
 Which one will you choose to excel in 
 
-[Home](https://github.com/BLUEBJJ/bluebjj.github.io/blob/master/index.md)
+[Home](https://bluebjj.github.io/index)
 
 ![IMAGE]( BJJ.JPG )
